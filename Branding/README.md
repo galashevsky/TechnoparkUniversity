@@ -1,1 +1,1 @@
-# TechnoparkUniversity
+# TechnoparkUniversity: Брендинг
