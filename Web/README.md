@@ -1,1 +1,1 @@
-# TechnoparkUniversity: Сайт.МАРК2
+# TechnoparkUniversity: Сайт
